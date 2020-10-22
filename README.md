@@ -24,4 +24,4 @@ Editing: 4h
 Unless I'm instucted otherwise, I will publish the video on my YouTube channel after the challenge ended. 
 
 ## Contact
-Please feel free to contact me via email dftba at gmail com, on Discord LCAndy#3284, or via my YouTube channel https://www.youtube.com/dftbandy :)
+Please feel free to contact me via email dftbandy at gmail com, on Discord LCAndy#3284, or via my YouTube channel https://www.youtube.com/dftbandy :)
